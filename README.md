@@ -1,4 +1,4 @@
-# 💫 About Me: Santiago Rodriguez
+# 💫 About Me: David Santiago Rodriguez Cruz
 🔭 I’m currently working on be better every day 🔥<br>🤝 I'm looking for help with all that make me a better person and a better a professional 👨🏻‍💻<br>🌱 I’m currently learning Android and IOS Development 📱
 
 
